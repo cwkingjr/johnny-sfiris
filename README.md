@@ -4,7 +4,11 @@ I worked with Johnny Sfiris on Hellenikon Air Base, Greece, from Jan 1984 until 
 
 ![Johnny Sfiris](johnnysfiriscirca1985.jpg)
 
-Johnny was there before I got there and after I left, so I don't know the full date range that he was associated with Hellenikon. Although, John Kima on FB said that he worked with Johnny in the HF radio shop in 1980 or 1981, so Johnny was at least around from 1980-1986.
+The above pic is an excerpt of this picture, with his parents, provided by Bobby Long.
+
+![Johnny Sfiris with Parents](johnny-sfiris-with-parents.jpg)
+
+Johnny was there before I got there and after I left, so I don't know the full date range that he was associated with Hellenikon. Although, John Kima on FB said that he worked with Johnny in the HF radio shop in 1980 or 1981. And, Fred Sue Roberto on FB said he was there from 1988-1990, so it looks like he was at least around from 1980 to 1990.
 
 Here are some screen grabs I took from a video on the 2140th Communications Group Facebook Group. The post said it was a lamb roast at the radio shop in about 1983.
 
